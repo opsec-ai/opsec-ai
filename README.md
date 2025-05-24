@@ -22,7 +22,7 @@ Send a text or an email. This critical exploit can wait... No, it can't. But I w
 
 - 😄 Pronouns: ...
 
-No pronouns. Not even "I" or "me" exist. A 
+Pronouns are lazy. Use nouns.
   
 - ⚡ Fun fact: ...
 
